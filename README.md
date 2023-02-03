@@ -11,6 +11,7 @@ Here are some things I like to do:
 * Travel and explore new places
 * Practice Italian
 * Have fun with family and friends
+* Collaborate with my film maker son to appear in interesting short films he makes
 * Have a nice big cup of good coffee!
 
 ![logo concept for collectibles](https://trishdaugherty.com/wp-content/uploads/teacup-logomark-2.jpg)
